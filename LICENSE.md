@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with top DaVinci Resolve for PC | DaVinci Resolve for Windows Overlay | multi-track-editing + green-screen-removal,
 
 
 
